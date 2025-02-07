@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @tsb02
-- 👀 I’m interested in all things automotive!
 - 🌱 I’m currently learning electrical engineering
 - 
 
